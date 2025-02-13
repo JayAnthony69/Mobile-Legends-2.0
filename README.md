@@ -1,1 +1,1 @@
-# Mobile-Legends-2.0
+# MOBILE-LEGENDS
